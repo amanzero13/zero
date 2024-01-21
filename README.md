@@ -1,2 +1,2 @@
 # zero
-correct me 
+if i do something wrong please correct me!
